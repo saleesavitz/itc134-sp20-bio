@@ -1,2 +1,2 @@
 # itc134-sp20-bio
-A repo I can use to place potential biographical info in
+Welcome to my page, I'm Salee Savitz.

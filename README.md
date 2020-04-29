@@ -1,2 +1,2 @@
 # itc134-sp20-bio
-Welcome to my page, I'm Salee Savitz.
+Savitz, Salee Savitz. Mother of two. First year college student. Novice Zoom user. 

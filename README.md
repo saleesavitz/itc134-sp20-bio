@@ -1,2 +1,2 @@
 # itc134-sp20-bio
-Savitz, Salee Savitz. Mother of two. First year college student. Novice Zoom user. 
+Welcome to the trainwreck that is a single mother of two, navigate college for the first time through Zoom fueled by overthinking and run on sentences. Welp. I have worked as a county mail clerk for six months...My highest score on my GED was Reasoning through Language Arts but thats becuase I described my journey learning how to repair my families computer as an epic quest through a fantasy medival world. I am afraid of what I might do if I wrote my own bio.
